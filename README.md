@@ -2,4 +2,4 @@
 
 bleh bleh bleh
 
-everything's great
+eVerything's Great.
